@@ -1,1 +1,0 @@
-# Minima-Hopping-Scripts
